@@ -1,0 +1,1 @@
+# Laborat-ria-Projeto-1---Segmenta-o
